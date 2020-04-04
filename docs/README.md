@@ -18,3 +18,4 @@
 
 > 欢迎共同探讨教研及教学
 - 邮箱：RicoHBChen@163.com
+- 知乎专栏：K-12科创教育 https://zhuanlan.zhihu.com/ricoshare-K12
